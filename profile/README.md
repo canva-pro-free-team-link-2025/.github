@@ -81,3 +81,7 @@ Using a <strong>Canva Pro free team link</strong> is a fantastic way to unlock p
 ## ⚠️ Disclaimer
 
 This guide is for educational purposes only. 📘 Always respect Canva’s terms of service when using shared resources.
+
+Addtional : <a href="https://etextpad.com/y9g9ddn1sj">https://etextpad.com/y9g9ddn1sj</a>
+Addtional : <a href="https://github.com/canva-pro-free-team-link-2025">https://github.com/canva-pro-free-team-link-2025</a>
+Addtional : <a href="https://pastelink.net/sivqyt7g">https://pastelink.net/sivqyt7g</a>
